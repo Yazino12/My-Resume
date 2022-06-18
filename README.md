@@ -1,1 +1,1 @@
-# [Resume.pdf](https://github.com/Yazino12/My-Resume/files/6797517/Resume.pdf)
+[My Resume.pdf](https://github.com/Yazino12/My-Resume/files/8933148/My.Resume.pdf)
